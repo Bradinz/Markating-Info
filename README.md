@@ -182,12 +182,24 @@ https://act-on.com/
 https://www.zendesk.com/
 https://dotdigital.com/
 https://keap.com/
+https://buffer.com/
+https://buffer.com/
+https://workflow.is/
+https://www.socialpilot.co/
+https://ifttt.com/
+https://www.sendible.com
+https://www.postplanner.com/
+https://www.tailwindapp.com/
+https://coschedule.com/
+https://later.com/
 
 ## Blogging Software
 https://www.blogger.com/
 https://medium.com/
 https://wordpress.com/
 
+##Chatbots
+https://www.hootsuite.com
 
 
 ## Social Media Engagemnt 
