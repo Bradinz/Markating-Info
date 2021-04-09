@@ -400,6 +400,18 @@ https://vk.com/
 https://play.google.com/store/apps/details?id=com.vk.stream&hl=en_US&gl=US
 
 ## Paid Texting Services
+
+https://www.chatrecruit.com/
+
+https://fibler.com/
+
+https://www.phrendly.com/
+
+https://www.justanswer.com/sip/justanswer-1?r=ppc%7Cga%7C13%7CJustAnswer%20%2D%20Search%7CJustAnswer%20%
+https://flirtbucks.net/
+
+https://lipservice.net/
+
 https://mcmoneyapp.com/
 
 http://ispyplates.com/
